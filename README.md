@@ -42,7 +42,6 @@ I'm a fresh graduate of **Cairo University (2026)** and currently work part time
 ---
 
 
--->
 
 ## 📫 Let's Connect
 
